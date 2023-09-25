@@ -10,6 +10,7 @@
 - 1/2 colher de chá de flocos de pimenta vermelha (opcional, para dar um toque picante)
 - Fatias finas de limão para decorar (opcional)
 
+
 # Modo de preparo
 
 - Lave bem os pepinos e corte as extremidades.
